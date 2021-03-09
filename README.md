@@ -1,1 +1,0 @@
-# iaindickson.com
